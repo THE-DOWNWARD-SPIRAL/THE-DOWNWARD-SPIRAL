@@ -1,2 +1,3 @@
-I am the truth from which you run
-![undefined_-_Imgur_31](https://github.com/user-attachments/assets/ab8991dd-ca26-4008-b83d-1eecd292512f)
+Everything for a reason
+![IMG_6302](https://github.com/user-attachments/assets/f4960a4b-569d-4c83-a9b0-40b724c5d6c8)
+
